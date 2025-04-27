@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Lepfemil25
 - 👀 I’m interested in work
 - 🌱 I’m currently learning C++
-- 💞️ I’m looking to collaborate on every where i can take money for my work
+- 💞️ I’m looking to collaborate on every wherever I can be useful and gain knowledge, and I want to work at Yandex
 - 📫 How to reach me @lepfemil25 tg
-- 😄 Pronouns: pu pu pu.... he
+- 😄 Pronouns: he.
 - ⚡ Fun fact: 88
 
 <!---
